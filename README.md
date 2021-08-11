@@ -1,5 +1,4 @@
 ### Hi there 👋
-📈 my github stats
 
 
 
